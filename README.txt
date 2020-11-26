@@ -1,6 +1,6 @@
 Here's an amazing document!
 
-With extraordinary content!
+With VERY extraordinary content!
 
 Oh my! A new line!
 
